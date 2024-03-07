@@ -44,6 +44,14 @@ the elite want to live longer
 
 because of 2
 
+opinion 5:
+
+maybe mossad actually become "good" people(mossad also connect with 愛破斯坦)
+
+opinion 6:
+
+the people who dead is always east europe(include russia) woman and man,or china woman and man,no JEWS in 愛破斯坦...
+
 
 
 FACT PART 2 - FUNDING WAR
@@ -54,7 +62,7 @@ trump have a meet with some groups of jews after the hamas war
 
 fact 2:
 
-hamas flag has a isaeli map on it
+hamas flag has a israeli map on it
 
 fact 3:
 
@@ -62,23 +70,23 @@ hamas build police office in hospital,and it is studied from ccp
 
 fact 4:
 
-the isaeli government's headmaster Netanyahu believe in the east christian church,which is russia
+the israeli government's headmaster Netanyahu believe in the east christian church,which is russia
 
 fact 5:
 
-hamas attack isaeli,and mossad (are forced by some group of jews) have no sound
+hamas attack israeli,and mossad (are forced by some group of jews) have no sound
 
 
 
 opinion 1(?):
 
-mossad is one group,hamas is one group,while isaeli government is one,and isaeli military is one
+mossad is one group,hamas is one group,while israeli government is one,and israeli military is one
 
 because of 2 4 5
 
 opinion 2:
 
-trump want war,he want to kill both isaeli and palestan,by spreading isaeli should keep Gulag in palestan,and spreading all palestan people support hamas.
+trump want war,he want to kill both israeli and palestine,by spreading israeli should keep Gulag in palestine,and spreading all palestine people support hamas.
 
 because of 1 2 3
 
@@ -90,7 +98,7 @@ because of 3
 
 opinion 4:
 
-volodymr putin actually do not support ccp
+volodymr putin(a qualified freemason who have patience,he wait 10 years to kill human) actually do not support ccp
 
 because of 3 4
 
@@ -115,3 +123,7 @@ trump is a dictactor,he says in a speech that he will give taiwan to xi because 
 fact 3:
 
 trump killed hongkong,in trump time,hongkong die.
+
+
+
+I MUST SAY I DONOT SUPPORT BIDEN's AI CENSORSHIP PROJECT,OR THIS WILL BE CENSORED TOO.SEE ONION.COM
